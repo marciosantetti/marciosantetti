@@ -9,4 +9,4 @@ Microeconomics classes.
 
 I am also a [Gracie Jiu-Jitsu](https://www.gracieuniversity.com/) Blue Belt, and love music, exercising, and cooking.
 
-Feel free to contact me via email: santetti@gmail.com.
+Feel free to contact me via email: `santetti@gmail.com`.
