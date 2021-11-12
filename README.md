@@ -5,7 +5,7 @@ on the environmental effects of technological change, the effects of residential
 the falling labor share in the US economy.
 
 I have been working as full instructor at the University of Utah since 2018, having taught Econometrics, Probability \& Statistical Inference, and Intermediate
-Microeconomics classes.
+Microeconomics courses.
 
 I am also a [Gracie Jiu-Jitsu](https://www.gracieuniversity.com/) Blue Belt, and love music, exercising, and cooking.
 
