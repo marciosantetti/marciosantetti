@@ -8,6 +8,6 @@ the falling labor share in the US economy.
 
 I have experience in teaching Statistics, Econometrics, Microeconomic Theory, and Introductory Economics courses.
 
-I am also a [Gracie Jiu-Jitsu](https://www.gracieuniversity.com/) Blue Belt, and love music, exercising, and cooking.
+I am also a [Gracie Jiu-Jitsu](https://www.gracieuniversity.com/) Blue Belt, and love music and cooking.
 
-Feel free to contact me via email: `santetti@gmail.com`.
+Feel free to contact me via email: `msantetti@skidmore.edu`.
