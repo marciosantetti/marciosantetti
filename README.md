@@ -6,7 +6,7 @@ My main research field is applied Macroeconomics, and I have publlished
 on the environmental effects of technological change, the effects of (residential) investment on business cycles, and on the structural determinants of
 the falling labor share in the US economy.
 
-I have experience in teaching Statistics, Econometrics, Microeconomic Theory, and Introductory Economics courses.
+I have experience in teaching Statistics, Econometrics, Macro/Microeconomic Theory, and Introductory Economics courses.
 
 I am also a [Gracie Jiu-Jitsu](https://www.gracieuniversity.com/) Blue Belt, and love music and cooking.
 
