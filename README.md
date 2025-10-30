@@ -8,7 +8,7 @@ My main research field is applied Macroeconomics, and I have publlished
 on the environmental effects of technological change, the effects of (residential) investment on business cycles, and on the structural determinants of
 the falling labor share in the US economy.
 
-I have experience in teaching Statistics, Econometrics, Macro/Microeconomic Theory, Forecasting, and Introductory Economics courses.
+I have experience in teaching Statistics, Econometrics, Game Theory, History of Economic Thought, Macro/Microeconomic Theory, Forecasting, and Introductory Economics courses.
 
 <br>
 
